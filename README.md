@@ -1,3 +1,0 @@
-# JavaGame
-osjdvbosöjgöos
-READ ME!!!
